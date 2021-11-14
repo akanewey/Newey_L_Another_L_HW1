@@ -1,4 +1,4 @@
-# Newey_L_Another_L_HW1
+# Brand Newey
 
 Hi, My Name is Liam Newey. I was born In British Columbia on August 5th, 2003. I moved to ontario when I was 4 year old. I now live in Georgina ON,CA 
 
